@@ -1,1 +1,1 @@
-coding is cool
+coding is cool to God be the glory
